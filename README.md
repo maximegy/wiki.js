@@ -1,0 +1,1 @@
+Image pour wiki.js
